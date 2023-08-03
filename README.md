@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @armanovsalehi
+- 👀 I’m interested in nfts cryptocurencys and all decenterilise staff
+- 🌱 I’m currently learning about web3
+- 💞️ I’m looking to collaborate on anything related to web3
+- 📫 you can reach me on arshamsalehi1800@gmail.com
